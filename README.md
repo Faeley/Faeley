@@ -6,10 +6,15 @@ I'm not around super often, mostly because I'm awkward and bad at starting conve
 
 #### Things I'm always happy to talk about:
 Musical theater (Wicked, Heathers, Chicago, Bonnie and Clyde, Repo...probably more)
-Theater/acting in general
-Sailor Moon (I'm nostalgic and currently fixated)
-80s MLP (is this a taboo. idk, I love my oldies)
-Killing Eve
-Any Wadjet Eye games
-ARGs and horror rpgs
 
+Theater/acting in general
+
+Sailor Moon (I'm nostalgic and currently fixated)
+
+80s MLP (is this a taboo. idk, I love my oldies)
+
+Killing Eve
+
+Any Wadjet Eye games
+
+ARGs and horror rpgs
