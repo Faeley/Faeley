@@ -11,7 +11,7 @@ Musical theater (Wicked, Heathers, Chicago, Bonnie and Clyde, Repo...probably mo
 
 Theater/acting in general
 
-Sailor Moon (I'm nostalgic and currently fixated)
+Sailor Moon (I'm nostalgic and currently fixated. primarily original anime)
 
 80s MLP (is this a taboo. idk, I love my oldies)
 
