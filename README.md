@@ -25,3 +25,5 @@ ARGs and horror rpgs
 
 ![alt text](https://media1.tenor.com/m/LRJj2Vu2jCEAAAAC/haruka-sailor-moon.gif)
 
+<sub>also here's a link to a [gradient maker](https://coolors.co/gradient-palette/84ffc9-aab2ff?number=7) because I keep losing it, enjoy</sub>
+
