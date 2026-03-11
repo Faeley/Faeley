@@ -7,17 +7,19 @@ I'm not around super often, mostly because I'm awkward and bad at starting conve
 (I'm also desperate for more lesbian friends, plz hmu so we can infodump about gay shit)
 
 #### Things I'm always happy to talk about:
+Sailor Moon (I'm nostalgic and currently fixated. primarily original anime)
+
+Unico (original and remake)
+
 Musical theater (Wicked, Heathers, Chicago, Bonnie and Clyde, Repo...probably more)
 
 Theater/acting in general
-
-Sailor Moon (I'm nostalgic and currently fixated. primarily original anime)
 
 80s MLP (is this a taboo. idk, I love my oldies)
 
 Killing Eve
 
-Any Wadjet Eye games
+Any Wadjet Eye games (Blackwell, my beloved)
 
 ARGs and horror rpgs
 
