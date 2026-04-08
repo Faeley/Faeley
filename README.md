@@ -6,6 +6,8 @@ I'm not around super often, mostly because I'm awkward and bad at starting conve
 
 (I'm also desperate for more lesbian friends, plz hmu so we can infodump about gay shit)
 
+fair warning, if I randomly unfriend you, I most likely forgot to note who you were and got confused as soon as you changed skins :')
+
 #### Things I'm always happy to talk about:
 Sailor Moon (I'm nostalgic and currently fixated. primarily original anime)
 
