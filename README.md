@@ -1,9 +1,8 @@
 ## im so tired
 
-go look at my ugly strawpage, it took me forever.
-
-and
+go look at my ugly strawpage, it took me forever. and
 #### for the love of god don't try to erp/sext me, I will block you, I am NOT interested 😭
+have a lovely day ❤️
 
 
 ![alt text](https://media1.tenor.com/m/LRJj2Vu2jCEAAAAC/haruka-sailor-moon.gif)
